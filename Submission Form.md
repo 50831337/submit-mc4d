@@ -8,6 +8,10 @@ to submit to match the theme of MC4D's second issue, 001.
 For convenience, paste this into your email client of choice 
 and begin inputting away to share some seeds for our digital art garden. 
 
+direct all submissions to binnie@ravemail.com
+
+Alternatively, [you can use Google Forms](https://docs.google.com/forms/d/e/1FAIpQLSesjcIVLQgq1_0UCSdU1hvrFG14KGw24emG8jfJqDyKLiPpsA/viewform)
+
 
 ![alt text](sadielightdish.png "REACHING SELF FULFILLMENT THROUGH THE ACT OF CREATION!")
 
