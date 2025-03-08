@@ -28,7 +28,7 @@ Alternatively, [you can use Google Forms](https://docs.google.com/forms/d/e/1FAI
 
 [ RESPONSE. ]
 
-![alt text](WIN_20240114_14_21_03_Pro.jpg "I HOPE YOU'RE PROUD OF YOURSELF")
+![alt text](WIN_20240114_14_21_03_Pro.jpg "HAVE YOU BROUGHT SOMETHING FOR OUR SPREAD?")
 # Primary Contents
 This will likely make up the bulk of your feature for MC4D 001
 
