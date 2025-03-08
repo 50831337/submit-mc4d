@@ -1,6 +1,14 @@
 # submit-mc4d
 The Submission template for Media Creation for Dogs Second issue (mc4d 001)
 
+Truly you can submit whatever you want, 
+but this is a form that will prompt you 
+to submit to match the theme of MC4D's second issue, 001. 
+
+For convenience, paste this into your email client of choice 
+and begin inputting away to share some seeds for our digital art garden. 
+
+
 ![alt text](sadielightdish.png "REACHING SELF FULFILLMENT THROUGH THE ACT OF CREATION!")
 
 
