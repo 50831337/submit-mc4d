@@ -35,6 +35,6 @@ All works considered
 
 [RESPONSE]
 
-## 6. where is best to reach you for followup questions?
+## 6. Where is best to reach you for followup questions?
 
 [RESPONSE]
