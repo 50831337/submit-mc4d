@@ -3,7 +3,7 @@ The Submission template for Media Creation for Dogs Second issue (mc4d 001)
 
 Only the first and last questions are required. 
 
-### ***direct all submissions to binnie@ravemail.com or telegram user @binnymf***
+### ***direct all submissions to  tele<----!--->gram user @binnymf, dis<----!--->cord user @5000, or binnie@ravemail.com***
 
 Alternatively, [you can use Google Forms](https://docs.google.com/forms/d/e/1FAIpQLSesjcIVLQgq1_0UCSdU1hvrFG14KGw24emG8jfJqDyKLiPpsA/viewform)
 
