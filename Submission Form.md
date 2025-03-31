@@ -1,12 +1,7 @@
 # submit-mc4d
 The Submission template for Media Creation for Dogs Second issue (mc4d 001)
 
-Truly you can submit whatever you want, 
-but this is a form that will prompt you 
-to submit to match the theme of MC4D's second issue, 001. 
-
-For convenience, paste this into your email client of choice 
-and begin inputting away to share some seeds for our digital art garden. 
+Only the first and last questions are required. 
 
 direct all submissions to binnie@ravemail.com
 
@@ -31,5 +26,9 @@ I would like to ask you about the works that you share here for our readers.
 
 ## 3. **Attach content you'd like to have shared on your MC4D 001 page**
 
-## 4. where can i reach you for followup questions?
+## 4. **Attach content you'd like to share with the interviewer.**
+
+## 5. What's your favorite part of the creative process?
+
+## 6. where is best to reach you for followup questions?
 
