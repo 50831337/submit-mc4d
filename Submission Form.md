@@ -16,42 +16,20 @@ Alternatively, [you can use Google Forms](https://docs.google.com/forms/d/e/1FAI
 ![alt text](sadielightdish.png "REACHING SELF FULFILLMENT THROUGH THE ACT OF CREATION!")
 
 
-## 1. Name you'd like to be credited under *
+## 1. artist name for attribution?
 
 [ RESPONSE. ]
 
-## 2. Any of your webpages
+## 2. any webpages or socials for attribution?
 
 [ RESPONSE. ]
 
-## 3. Ideal contact in case of followup
-
-[ RESPONSE. ]
 
 ![alt text](WIN_20240114_14_21_03_Pro.jpg "HAVE YOU BROUGHT SOMETHING FOR OUR SPREAD?")
 # Primary Contents
-This will likely make up the bulk of your feature for MC4D 001
+I would like to ask you about the works that you share here for our readers.
 
-## 4. What mediums and tools have you felt at home working with? Why?
+## 3. **Attach content you'd like to have shared on your MC4D 001 page**
 
-[ RESPONSE. ]
-
-## 5. **Attach content you'd like to have shared on your MC4D 001 page**
-
-(feel free to ask about alternative methods for sharing work)
-
-
-
-## 6. What relevant software, hardware, techniques, processes, and inspiration led you to creating the works you've shared with us?
-
-[ RESPONSE. ]
-
-## 8. Are you open to follow up questions? *
-
-Mark only one oval.
-
-
-- [ ] Yes, send me the questions and I'll answer them.
-- [ ] Yes, I'd like to be interviewed over text in realtime (*and I will reach out to you on when we can do this*)
-- [ ] No
+## 4. where can i reach you for followup questions?
 
